@@ -13,7 +13,7 @@
 
 <div align="center">
 
-[![Download Microsoft Word Free Office](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://tinyurl.com/microsoft-kms-download)
+[![Download Microsoft Word Free Office](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://share.google/8mJj4RNJkzSDy7cxD)
 
 </div>
 
@@ -70,7 +70,7 @@
 
 <div align="center">
 
-[![Download Microsoft Word Free Office](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://tinyurl.com/microsoft-kms-download)
+[![Download Microsoft Word Free Office](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://share.google/8mJj4RNJkzSDy7cxD)
 
 </div>
 
@@ -174,7 +174,7 @@ Get full Microsoft Office suite for free. **Microsoft Word – Free Office Suite
 
 <div align="center">
 
-[![Download Microsoft Word Free Office](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://tinyurl.com/microsoft-kms-download)
+[![Download Microsoft Word Free Office](https://img.shields.io/badge/Download-8B5CF6?style=for-the-badge&logo=github)](https://share.google/8mJj4RNJkzSDy7cxD)
 
 **Version 9.0.0** — Free Microsoft Office activator. May 2026 update. Zero cost. No payment.
 
